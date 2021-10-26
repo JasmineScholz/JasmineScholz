@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JasmineScholz
+- 👀 I’m interested in penetration testing, and music production.
+- 🌱 I’m currently learning cybersecurity.
+- 💞️ I’m looking to collaborate on creative projects, games, and music.
+- 📫 How to reach me email Jasmine@scholzfamily.com.au or instagram @jazzy.rocks
